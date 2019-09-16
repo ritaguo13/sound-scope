@@ -1,1 +1,16 @@
 # sound-scope
+
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE2.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE3.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE4.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE5.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE6.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE7.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE8.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE9.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE10.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE11.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE12.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE13.jpg?raw=true)
+![Image](https://github.com/ritaguo13/sound-scope/blob/master/DES%20INV%20FINAL%20SHOWCASE14.jpg?raw=true)
